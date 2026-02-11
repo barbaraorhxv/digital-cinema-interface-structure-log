@@ -9,3 +9,5 @@
 
 内容说明：
 阳光电影网汇集高清电影与在线影视相关内容信息，更新节奏稳定，页面结构明确。适合作为影视浏览参考。本页面仅作公开资料归档与信息记录用途。
+
+Site notes: https://barbaraorhxv.github.io/digital-cinema-interface-structure-log/
